@@ -1,5 +1,11 @@
 # skinhub
 
+# [- kuromi boop](https://drive.google.com/file/d/1xXhH-hCGqppE8F0QIH8kSnRIf0RD2H4s/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/421bf922-5fac-42c6-916b-479de79a22ce)
+
+# [- kuromi hyeok](https://drive.google.com/file/d/1CNqVM_7xivg0vp7YsHal7uSk9Mt18lir/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/823ce4d7-9d45-4e3e-9dde-37e10d6bb9af)
+
 # [subahibi dt](https://drive.google.com/file/d/1hL-a-hWZUGEylFvEcMNh5kqvgeJw1fGT/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/33d9b121-1b30-4a72-98f7-8e55c71b7837)
 
