@@ -1,5 +1,14 @@
 # skinhub
 
+# [負けヒロイン 八奈見杏菜](https://drive.google.com/file/d/1QRhgouCCPdF570n2q0ffp6ylf7jpou-a/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/b14e6fdf-198a-4ad1-8fd6-e3c3c0db686c)
+
+# [負けヒロイン 焼塩檸檬](https://drive.google.com/file/d/1si4f5JT2592O0J6FLRXUWuy1a4c919Sw/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/0b0b41ea-90a7-4e31-a08a-6e400a1e8ab7)
+
+# [負けヒロイン 小鞠知花](https://drive.google.com/file/d/1PWxjSZUY6Cv5gmmQ5qYkMlBoHoAzRiUA/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/56f98396-1453-4cca-8f87-c0bbcb788103)
+
 # [- kuromi boop](https://drive.google.com/file/d/1xXhH-hCGqppE8F0QIH8kSnRIf0RD2H4s/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/421bf922-5fac-42c6-916b-479de79a22ce)
 
