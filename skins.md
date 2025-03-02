@@ -1,5 +1,14 @@
 # skinhub
 
+# [_• zadymiarz bandana 1](https://drive.google.com/file/d/1A1FliHlv0v2fizDhfC0ltIU7rQhVRwcw/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/3cf57cad-409b-4d03-972d-52d9db17be0f)
+
+# [_• zadymiarz bandana 2](https://drive.google.com/file/d/1mpxpHg8s-F7uellK1dGr8FiHFN9NS6WK/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/8798f51e-5430-4405-8173-5bee375fb723)
+
+# [_• zadymiarz bandana 3](https://drive.google.com/file/d/1U37FtB_VfPqbSO2JwMWi939Rq1_OJLBH/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/a64edc92-951c-48b5-a341-bdb8cba31b3d)
+
 # [負けヒロイン 八奈見杏菜](https://drive.google.com/file/d/1QRhgouCCPdF570n2q0ffp6ylf7jpou-a/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/b14e6fdf-198a-4ad1-8fd6-e3c3c0db686c)
 
