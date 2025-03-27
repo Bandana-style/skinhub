@@ -1,5 +1,26 @@
 # skinhub
 
+# [_• zadymiarz sekine 2](https://drive.google.com/file/d/1TBWkoCelx3l6N1Ln1mIcg43Y-rbZnDIt/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/bf56dd05-8281-4f5f-915e-973632002d45)
+
+# [_• podkrecony empire of jp edit](https://drive.google.com/file/d/1FVLnJl310ypX3_Gp5vzKmEfv9cGlVwb-/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/d59ae296-a087-4aa5-bb31-d8a13360f785)
+
+# [tekkito unko](https://drive.google.com/file/d/1i5H7LsVaoRg9CM0EUpSyYDoD4Gl0GWdC/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/14850647-ff09-4ffe-a80d-46883015ebfd)
+
+# [Rafis wakatte.tv](https://drive.google.com/file/d/1lGTI2maUY6bS-m1LiX-Gf9EfB_H07rO1/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/925b7150-16ea-4182-a341-7e075adf190d)
+
+# [Rafis clover days](https://drive.google.com/file/d/1EyZ1V84DFYaayk4wRjW7aXHUQxR3FKAI/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/4a39ef6c-0a7d-4a01-bb9e-aa9ba7bff7f0)
+
+# [Aristia saya no uta](https://drive.google.com/file/d/1-uyLpk1ujebbh28aa5w-vDBznzRFB1La/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/a1d01ed5-9edd-4445-b6a5-e408ae2f0ff3)
+
+# [Aristia bocchi](https://drive.google.com/file/d/13TRQ5pqiaqmwpAPTPbFIuVUkZ9HDZ6aP/view?usp=drive_link)
+![](https://github.com/user-attachments/assets/80e5849c-9a25-4ed5-8b3a-c67a1d91ec8a)
+
 # [_• zadymiarz bandana 1](https://drive.google.com/file/d/1A1FliHlv0v2fizDhfC0ltIU7rQhVRwcw/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/3cf57cad-409b-4d03-972d-52d9db17be0f)
 
