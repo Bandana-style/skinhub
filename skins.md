@@ -12,10 +12,10 @@
 # [Rafis wakatte.tv](https://drive.google.com/file/d/1lGTI2maUY6bS-m1LiX-Gf9EfB_H07rO1/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/925b7150-16ea-4182-a341-7e075adf190d)
 
-# [Rafis Clover Day's](https://drive.google.com/file/d/1EyZ1V84DFYaayk4wRjW7aXHUQxR3FKAI/view?usp=drive_link)
+# [Rafis Clover Day's](https://drive.google.com/file/d/1qTolfnikelqm2ZiXY2u4L82yfwZPJVHc/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/4a39ef6c-0a7d-4a01-bb9e-aa9ba7bff7f0)
 
-# [Aristia Saya no Uta](https://drive.google.com/file/d/1-uyLpk1ujebbh28aa5w-vDBznzRFB1La/view?usp=drive_link)
+# [Aristia Saya no Uta](https://drive.google.com/file/d/1NyxVb1yr6SFjiXc4rB7GhrTxSefVpvIn/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/a1d01ed5-9edd-4445-b6a5-e408ae2f0ff3)
 
 # [Aristia bocchi](https://drive.google.com/file/d/13TRQ5pqiaqmwpAPTPbFIuVUkZ9HDZ6aP/view?usp=drive_link)
