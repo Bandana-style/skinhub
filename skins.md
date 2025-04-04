@@ -18,12 +18,6 @@
 # [tekkito unko](https://drive.google.com/file/d/1i5H7LsVaoRg9CM0EUpSyYDoD4Gl0GWdC/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/14850647-ff09-4ffe-a80d-46883015ebfd)
 
-# [Rafis wakatte.tv](https://drive.google.com/file/d/1lGTI2maUY6bS-m1LiX-Gf9EfB_H07rO1/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/925b7150-16ea-4182-a341-7e075adf190d)
-
-# [Rafis Clover Day's](https://drive.google.com/file/d/1qTolfnikelqm2ZiXY2u4L82yfwZPJVHc/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/4a39ef6c-0a7d-4a01-bb9e-aa9ba7bff7f0)
-
 # [Aristia Saya no Uta](https://drive.google.com/file/d/1NyxVb1yr6SFjiXc4rB7GhrTxSefVpvIn/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/a1d01ed5-9edd-4445-b6a5-e408ae2f0ff3)
 
