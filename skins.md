@@ -6,23 +6,8 @@
 # [810 dt](https://drive.google.com/file/d/1aRIAIu3N_W1VQhZVv1hpK2tkjKpb5pUf/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/200fe0ec-3477-4442-91b3-d60335de710e)
 
-# [810 nm](https://drive.google.com/file/d/1lMM1kV4cLAZgWlRu2u_bsr4vhtxMApdy/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/b401f1bb-6250-4c0c-b7a0-b52e6c47db35)
-
 # [_• zadymiarz sekine 2](https://drive.google.com/file/d/1TBWkoCelx3l6N1Ln1mIcg43Y-rbZnDIt/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/bf56dd05-8281-4f5f-915e-973632002d45)
-
-# [_• podkrecony empire of jp edit](https://drive.google.com/file/d/1FVLnJl310ypX3_Gp5vzKmEfv9cGlVwb-/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/d59ae296-a087-4aa5-bb31-d8a13360f785)
-
-# [tekkito unko](https://drive.google.com/file/d/1i5H7LsVaoRg9CM0EUpSyYDoD4Gl0GWdC/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/14850647-ff09-4ffe-a80d-46883015ebfd)
-
-# [Aristia Saya no Uta](https://drive.google.com/file/d/1NyxVb1yr6SFjiXc4rB7GhrTxSefVpvIn/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/a1d01ed5-9edd-4445-b6a5-e408ae2f0ff3)
-
-# [Aristia bocchi](https://drive.google.com/file/d/13TRQ5pqiaqmwpAPTPbFIuVUkZ9HDZ6aP/view?usp=drive_link)
-![](https://github.com/user-attachments/assets/80e5849c-9a25-4ed5-8b3a-c67a1d91ec8a)
 
 # [_• zadymiarz bandana 1](https://drive.google.com/file/d/1A1FliHlv0v2fizDhfC0ltIU7rQhVRwcw/view?usp=drive_link)
 ![](https://github.com/user-attachments/assets/3cf57cad-409b-4d03-972d-52d9db17be0f)
